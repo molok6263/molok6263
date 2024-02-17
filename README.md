@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @molok6263
+- 👀 I’m interested in computers & gaming
+- 🌱 I’m currently learning how to text code
+- 😄 Pronouns: he/him
